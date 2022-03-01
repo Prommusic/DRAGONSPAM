@@ -1,4 +1,4 @@
-# SAVAGE SPAMMER
+# OFFICIAL SPAMMER
 
 <p align="center">
   <img src="https://telegra.ph/file/d1fe6a680ac1b555574d8.jpg">
@@ -19,8 +19,7 @@
 
 -------------------------------------------------
 
-## 𝙲𝚁𝙴𝙰𝚃𝙾𝚁 -[BHATAKTI](https://t.me/ZINDA_H_TU_MERE_LIYE_HEART_HACK)
-
+## 𝙲𝚁𝙴𝙰𝚃𝙾𝚁 -[KILLER](https://t.me/ZINDA_H_TU_MERE_LIYE_HEART_HACK)
 -------------------------------------------------
 
 ## 🚀 Deploy on Heroku 
